@@ -1,0 +1,2 @@
+# WawasanGlobalTIK1
+PERTAMA
